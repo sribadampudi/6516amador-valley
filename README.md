@@ -1,1 +1,1 @@
-6516amador-valley.github.io
+magni.html
